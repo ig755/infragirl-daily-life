@@ -13,3 +13,4 @@ NG
 ・コピーライトを削除しての使用  
   
 「この画像面白いね！」という話題になったら、LINEスタンプの存在も同時に伝えていただけると嬉しいです。  
+https://store.line.me/stickershop/product/6666918/ja
